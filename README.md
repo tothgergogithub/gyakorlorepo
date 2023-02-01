@@ -1,0 +1,2 @@
+# gyakorlorepo
+gyakorlasra
